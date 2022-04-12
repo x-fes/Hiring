@@ -20,10 +20,6 @@
 
 5. 对技术有强烈的进取心，具有良好的沟通能力和团队合作精神、优秀的分析问题和解决问题的能力。
 
-### 招聘 JD
-
-https://talent.alibaba.com/off-campus-position/717318?trace=qrcode_share
-
 ### 工作地址
 
 工作地址：杭州、成都、广州、西安、深圳、北京
